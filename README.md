@@ -1,0 +1,1 @@
+# WS_sparebanken1_utvikling
